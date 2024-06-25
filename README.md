@@ -50,4 +50,23 @@ Mathematical proof of my foreign language learning method
 
 Books, subtitles are spoken language converted from the human auditory system to the human visual system. It's like converting smells and tastes into text: "Banana is potato and sugar." Written language is good for transmitting information quickly, but learning foreign languages is impossible. Compare the size of a one-minute dialog that is packaged as a video file, an audio file, and a text file. Is the difference between them thousands of times unnecessary information? 
 
+For example, the phrase "What are you doing today?" is only spelled that way. And if you change even one letter, it's a mistake. In spoken language, this phrase has thousands of variants, depending on the speaker: geography, age, stuttering, accent, dialect, foul and parasitic words.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
