@@ -5,6 +5,44 @@
 ---
 ### Contents
 
+Do not read books or subtitles if you do not understand foreign speech by ear
+
+When a foreign language starts to develop on its own
+
+Each word has its own speed for memorization
+
+How to memorize a foreign word. Synonyms method
+
+Grammar prevents you from learning a foreign language
+
+Learn one foreign language simultaneously
+
+5-10 lessons of 5-10 minutes each day
+
+All foreign languages are equal in difficulty
+
+Which pronunciation is correct Indian English or Australian English?
+
+Can't hear or hear foreign sounds, words indistinctly?
+
+Learn to write. What is it for?
+
+How much foreign language for janitor and translator
+
+Foreign language for children over 12-13 years old
+
+TV series and subtitles for learning a foreign language
+
+Algorithms for training vocabulary, grammar and speech
+
+- Beginner level
+
+- Intermediate level
+
+- Enlightenment ...
+
+Mathematical proof of my foreign language learning method
+
 
 ---
   
