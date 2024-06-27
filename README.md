@@ -54,6 +54,17 @@ For example, the phrase "What are you doing today?" is only spelled that way. An
 
 Linguistics cuts infinite spoken language to a small number of words, rules and grammatical rules. At the same time, linguistics complicates written language. For example, the spelling of almost all words is different from spoken language. What is a hieroglyph? A hieroglyph is when the spelling of a word and its transcription are different. And it turns out that all the languages of the world are hieroglyphic languages, like Chinese. How is it possible to learn a foreign language this way? 
 
+For example, you can read the letter "A" as "B", the letter "B" as "274", the letter "C" as "字" and so on, but this will not prevent you from reading foreign books in the original in six months! That is, you can read foreign letters as you like. In this way you create your own version of a foreign language. And if you want to talk to a native speaker, you will not understand each other. This happens if you learn a foreign language from textbooks that describe the sounds and letters of the foreign language.
+
+
+
+
+
+
+
+
+
+
 
 
 
