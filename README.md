@@ -52,7 +52,7 @@ Books, subtitles are spoken language converted from the human auditory system to
 
 For example, the phrase "What are you doing today?" is only spelled that way. And if you change even one letter, it's a mistake. In spoken language, this phrase has thousands of variants, depending on the speaker: geography, age, stuttering, accent, dialect, foul and parasitic words.
 
-
+Linguistics cuts infinite spoken language to a small number of words, rules and grammatical rules. At the same time, linguistics complicates written language. For example, the spelling of almost all words is different from spoken language. What is a hieroglyph? A hieroglyph is when the spelling of a word and its transcription are different. And it turns out that all the languages of the world are hieroglyphic languages, like Chinese. How is it possible to learn a foreign language this way? 
 
 
 
