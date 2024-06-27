@@ -58,7 +58,7 @@ For example, you can read the letter "A" as "B", the letter "B" as "274", the le
 
 Are you able to mentally pump your muscles? Why do you think you can pump up listening comprehension (movement of the eardrums) and speaking (movement of the lips and tongue). 
 
-
+"Real Foreign Language" is a spoken language and a video. If you don't see the context, you don't know exactly what is going on. You are supposed to guess from the book, but the book is a small part of what is happening. This causes the problem of what translation to choose for a foreign word from a dictionary.
 
 
 
