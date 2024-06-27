@@ -56,7 +56,7 @@ Linguistics cuts infinite spoken language to a small number of words, rules and 
 
 For example, you can read the letter "A" as "B", the letter "B" as "274", the letter "C" as "字" and so on, but this will not prevent you from reading foreign books in the original in six months! That is, you can read foreign letters as you like. In this way you create your own version of a foreign language. And if you want to talk to a native speaker, you will not understand each other. This happens if you learn a foreign language from textbooks that describe the sounds and letters of the foreign language.
 
-
+Are you able to mentally pump your muscles? Why do you think you can pump up listening comprehension (movement of the eardrums) and speaking (movement of the lips and tongue). 
 
 
 
