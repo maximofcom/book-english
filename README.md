@@ -60,6 +60,11 @@ Are you able to mentally pump your muscles? Why do you think you can pump up lis
 
 "Real Foreign Language" is a spoken language and a video. If you don't see the context, you don't know exactly what is going on. You are supposed to guess from the book, but the book is a small part of what is happening. This causes the problem of what translation to choose for a foreign word from a dictionary.
 
+If you learn a foreign language with the help of movies, TV series with original subtitles, you are actually learning two different foreign languages at the same time - written language and spoken language. And because the human visual system is ten times more powerful than the human auditory system, you memorise the foreign word as a picture of letters, and the audio word is suppressed by this picture. So it is very easy to learn to read, and impossible to learn to understand movies.
+
+
+
+
 
 
 
