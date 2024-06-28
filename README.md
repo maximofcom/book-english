@@ -63,6 +63,11 @@ Are you able to mentally pump your muscles? Why do you think you can pump up lis
 If you learn a foreign language with the help of movies, TV series with original subtitles, you are actually learning two different foreign languages at the same time - written language and spoken language. And because the human visual system is ten times more powerful than the human auditory system, you memorise the foreign word as a picture of letters, and the audio word is suppressed by this picture. So it is very easy to learn to read, and impossible to learn to understand movies.
 
 
+### When a foreign language starts to develop on its own
+
+The main idea of my method is to quickly reach the level of listening comprehension of TV channels (here is the maximum speed of speech), understanding the general meaning of dialogues, without understanding details. You will not just learn a foreign language, but you will become a native speaker of that foreign language. At this level, the foreign language is maintained and developed independently without your efforts. And your goal is to reach this level. Otherwise, learning a foreign language will take forever. 
+
+
 
 
 
