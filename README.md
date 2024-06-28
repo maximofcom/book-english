@@ -67,6 +67,10 @@ If you learn a foreign language with the help of movies, TV series with original
 
 The main idea of my method is to quickly reach the level of listening comprehension of TV channels (here is the maximum speed of speech), understanding the general meaning of dialogues, without understanding details. You will not just learn a foreign language, but you will become a native speaker of that foreign language. At this level, the foreign language is maintained and developed independently without your efforts. And your goal is to reach this level. Otherwise, learning a foreign language will take forever. 
 
+After enlightenment, the next goal is to watch as many serials, movies, TV shows as possible in each day, trying to understand the details of foreign speech. After six months, you will understand up to 90 percent of the dialogues.  Learning the other 10 per cent of the foreign language will take a few more years. Once you understand foreign TV channels by ear, it is easy to learn to read, write and speak a foreign language.
+
+
+
 
 
 
