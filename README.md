@@ -72,8 +72,10 @@ After enlightenment, the next goal is to watch as many serials, movies, TV shows
 ### Every word has its own speed
 
 The most difficult part of learning a foreign language is the vocabulary. Foreign words that you have tried to memorise many times, you still forget after a while. The reason is very simple, your brain forgets everything. And your mother tongue is also forgotten over time, but because you constantly speak, listen and think in your mother tongue, it seems to you that your mother tongue is forever. The slower a juggler moves his hands, the fewer balls he can toss. That is, the less you speak and think in your mother tongue, the smaller your vocabulary. It is impossible to memorise a foreign word on the first try! Each attempt to memorise a foreign word (5-30 seconds) or recognising a foreign word in movies or texts (less than a second) increases the "storage time" of the word in your memory.
-
-
+- First attempt to memorise a foreign word - the " storage time" of a foreign word in memory is about 15 minutes (look up "Ebbinghaus Curve" on Wikipedia) 
+- Second attempt to memorise a foreign word or first recognition of a foreign word in a movie or text - 1 hour 
+- Third attempt to memorise a foreign word or second recognition of a foreign word in a movie or text - 8 hours 
+- Fourth attempt to memorise a foreign word or the third recognition of a foreign word in a movie or text - 24 hours 
 
 
 
