@@ -77,7 +77,7 @@ The most difficult part of learning a foreign language is the vocabulary. Foreig
 - Third attempt to memorise a foreign word or second recognition of a foreign word in a movie or text - 8 hours 
 - Fourth attempt to memorise a foreign word or the third recognition of a foreign word in a movie or text - 24 hours 
 
-
+Why are foreign word cards useless for learning a foreign language? Let's say you want to memorise the words "apple" and "papaya" in English. You read and hear one thousand English words a day. Statistically, the word "papaya" is once out of 20,000 words. So you will encounter the word "papaya" once every three weeks and forget it after 15 minutes. How many words like that do you have? Almost all of them... 
 
 
 
