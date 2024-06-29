@@ -69,8 +69,9 @@ The main idea of my method is to quickly reach the level of listening comprehens
 
 After enlightenment, the next goal is to watch as many serials, movies, TV shows as possible in each day, trying to understand the details of foreign speech. After six months, you will understand up to 90 percent of the dialogues.  Learning the other 10 per cent of the foreign language will take a few more years. Once you understand foreign TV channels by ear, it is easy to learn to read, write and speak a foreign language.
 
+### Every word has its own speed
 
-
+The most difficult part of learning a foreign language is the vocabulary. Foreign words that you have tried to memorise many times, you still forget after a while. The reason is very simple, your brain forgets everything. And your mother tongue is also forgotten over time, but because you constantly speak, listen and think in your mother tongue, it seems to you that your mother tongue is forever. The slower a juggler moves his hands, the fewer balls he can toss. That is, the less you speak and think in your mother tongue, the smaller your vocabulary. It is impossible to memorise a foreign word on the first try! Each attempt to memorise a foreign word (5-30 seconds) or recognising a foreign word in movies or texts (less than a second) increases the "storage time" of the word in your memory.
 
 
 
